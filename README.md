@@ -1,1 +1,1 @@
-Visit historical.maticalgos.com to learn more
+Visit http://historical.maticalgos.com/ to learn more
